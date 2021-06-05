@@ -10,3 +10,7 @@ Drug Trader ![DayZ_2021 06 05-01 47](https://user-images.githubusercontent.com/8
 
 
 Cali Kings Reign ![](https://cdn.discordapp.com/attachments/830190660178149447/846181443243737108/Cali_Kings_Reign.jpg)
+
+
+Toxic Zone ![DayZ_2021 06 05-02 04](https://user-images.githubusercontent.com/85384475/120883389-71d39e80-c5a2-11eb-90d6-fd97b0285c35.png)
+
