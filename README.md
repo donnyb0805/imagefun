@@ -9,3 +9,4 @@ Kumyrna Trader![4 kumyrna](https://user-images.githubusercontent.com/85384475/12
 Drug Trader ![DayZ_2021 06 05-01 47](https://user-images.githubusercontent.com/85384475/120882912-05f03680-c5a0-11eb-84e3-310ffa0bba88.png)
 
 
+Cali Kings Reign ![](https://cdn.discordapp.com/attachments/830190660178149447/846181443243737108/Cali_Kings_Reign.jpg)
