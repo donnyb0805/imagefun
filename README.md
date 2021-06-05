@@ -6,5 +6,6 @@ Green Mountain Trader ![3 gm](https://user-images.githubusercontent.com/85384475
 
 Kumyrna Trader![4 kumyrna](https://user-images.githubusercontent.com/85384475/120882637-b3fae100-c59e-11eb-981c-93185523deaf.jpg)
 
-Drug Trader ![5 drug](https://user-images.githubusercontent.com/85384475/120882655-ca08a180-c59e-11eb-979d-f7b903dd5810.jpg)
+Drug Trader ![DayZ_2021 06 05-01 47](https://user-images.githubusercontent.com/85384475/120882912-05f03680-c5a0-11eb-84e3-310ffa0bba88.png)
+
 
