@@ -14,3 +14,4 @@ Cali Kings Reign ![](https://cdn.discordapp.com/attachments/830190660178149447/8
 
 Toxic Zone ![DayZ_2021 06 05-02 04](https://user-images.githubusercontent.com/85384475/120883389-71d39e80-c5a2-11eb-90d6-fd97b0285c35.png)
 
+Toxic Zone Loot ![toxic zone shoot](https://user-images.githubusercontent.com/85384475/120944598-fafde900-c6fa-11eb-9ec1-96bdf4e50ebe.png)
